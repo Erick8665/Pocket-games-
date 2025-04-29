@@ -1,1 +1,1 @@
-Jogue e seja feliz
+Jogue e seja feliz !
